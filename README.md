@@ -1,0 +1,2 @@
+- My stuff are free and im not responsible for any wrong usage and its main purpose is testing
+- on my head on my head brother
